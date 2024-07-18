@@ -1,4 +1,4 @@
-# Marketing & DEI + Gender Equality Team 
+# Marketing & Disability + Gender Equality Team 
 These talks will be done collaboratively with the marketing team on LinkedIn & YouTube.
 
 | #  | Topic Title                                                                          | Description                                                                                                                                                                                                                                                                                            |
